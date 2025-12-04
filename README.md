@@ -46,8 +46,8 @@ I thrive in **startup environments**, where adaptability, innovation, and speed 
 
 ## 🎓 Education
 
-- **BE Mechanical Engineering** – Sriguru Institute of Technology 
-- **Diploma Mechanical Engineering** – Sri Ramakrishna Polytechnic College
+- **BE** – Sriguru Institute of Technology 
+- **Diploma** – Sri Ramakrishna Polytechnic College
 
 ---
 
